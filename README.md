@@ -1,2 +1,0 @@
-# AltaCapitalPartners
-AltaCap
